@@ -161,7 +161,9 @@ Knowing is half the battle. Here are a few tips that we gathered when we were at
 
 Hang on. My husband interrupts “Sushma, he is refusing to wear the diaper”. And, the fun continues!
 
-Before I go, I would like to thank doulas and midwives for all their help and support. I still reach out to them on any questions I run into. They gladly help me out.
+Before I go, I would like to thank doulas and midwives for all their help and support. I still reach out to them on any questions I run into. They gladly help me out. 
+
+By the way, have you heard of "Closing bone ritual"? Stay tuned for my next blog.
 
 **References:**
 
