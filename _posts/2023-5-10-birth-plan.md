@@ -3,8 +3,9 @@ title: Birth Plan
 layout: post
 ---
 
-Creating a birth plan is one of the important preparation pregnant women has to do to ensure her birth wishes and requirements are clearly recorded. Next thing that's important is sharing this with your midwife or doula who is going to be present at the birth. Also, you need to take copies of it to give it to the midwife or doctors at the hospital who would be present at the birth. This is important they read and understand your birth plan. If not done, don't hesitate to say that they do. In my case, I gave birth in a Czech hospital. I forgot to translate my birth plan to Czech and take copies.
-You will not be in a state to talk about it during birth. So your partner to help you out as necessary.
+Creating a birth plan is one of the important preparation pregnant women has to do to ensure her birth wishes and requirements are clearly stated. 
+
+Next thing that's important is sharing this with your midwife or doula who is going to be present at the birth. Also, you need to take copies of it to give it to the midwife or doctors at the hospital who would be present at the birth. This is important they read and understand your birth plan. If not done, don't hesitate to say that they do. In my case, I gave birth in a Czech hospital. I forgot to translate my birth plan to Czech and take copies. You will not be in a state to talk about it during birth. So your partner to help you out as necessary.
 
 Here is my birth plan. Feel free to use it as a base and tweak it as needed. I used the layout from Pregnancy+ app as a guideline to prepare this. But I didn't do it directly using the app as that was a paid feature.
 
