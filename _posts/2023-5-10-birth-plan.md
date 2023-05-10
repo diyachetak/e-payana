@@ -5,11 +5,15 @@ layout: post
 
 Creating a birth plan is one of the important preparation pregnant women has to do to ensure her birth wishes and requirements are clearly stated. 
 
-Next thing that's important is sharing this with your midwife or doula who is going to be present at the birth. Also, you need to take copies of it to give it to the midwife or doctors at the hospital who would be present at the birth. This is important they read and understand your birth plan. If not done, don't hesitate to say that they do. In my case, I gave birth in a Czech hospital. I forgot to translate my birth plan to Czech and take copies. You will not be in a state to talk about it during birth. So your partner to help you out as necessary.
+Firstly, I did not know what a birth plan is until I met my birth doula. This was unheard of and may be not a thing in India, where I come from. Even after I knew, I wondered if it is necessary. After couple of discussions with doula about preparing for birth, what to expect and what could go wrong etc., things started becoming clear to me. Birth plan seemed a way for me to channelize my thoughts about birth. This also helped me to create a positive birth scene in my mind and work towards it. So, dear mothers, go ahead and create a birth plan!
 
-Here is my birth plan. Feel free to use it as a base and tweak it as needed. I used the layout from Pregnancy+ app as a guideline to prepare this. But I didn't do it directly using the app as that was a paid feature.
+Once you have a birth plan, the next thing that's important is sharing it with your midwife or doula who is going to be present at the birth. Also, you need translate it to the local language if necessary and take copies of it to give it to the midwives or doctors on duty at the hospital who would be helping you at the birth. This is important they read and understand your birth plan. If not done, don't hesitate to say that they do.  You will not be in a state to talk about it during birth. So your partner to help you out as necessary. 
 
-Birth Plan
+In my case, I gave birth in a Czech hospital. I forgot to translate my birth plan to Czech and take copies. My birth doula helped out a lot here. She seemed to have a blue print of it in her mind and she always communicated it to the midwife who was helping when needed. Thanks to her, I had a pleasant [birth](https://www.e-payana.com/Rios-birth/) experiece.
+
+Here is my birth plan. Feel free to use it as a motivation to create yours. I used the layout from Pregnancy+ app as a guideline to prepare this. But I didn't do it directly using the app as that was a paid feature.
+
+**Birth Plan**
 * Stay home as long as possible.
 * Dim light,quiet environment.
 * My partner, doula and midwife in the room. Doctor only when necessary.
