@@ -31,6 +31,8 @@ Here are a few things I would like to share from my pregnancy diary. Everything 
 * When your belly starts showing up or even earlier, start smearing some oil mainly on your belly, around hips, shoulders and breasts. I used olive oil and coconut oil. This will keep the skin supple and avoid the discomforts you might have from stretching of the skin as the baby grows. Alternatively, moisturizers can be used.
 * Avoid cosmetics filled with chemicals. Any natural alternative would be good. The only cosmetic I ever used during pregnancy is the moisturizing cream “Skin Food” from Weleda which is prepared from natural ingredients.
 
+Hamarrhoids is another common problem most of the women face during pregnancy. Especially during the last trimester as the belly becomes heavier and heavier putting pressure on the pelvic area leading to hamarrhoids. There are some home remedies which I learnt from my doula and midwife. Try to cool the hamarrhoids by appplying green clay (Zelený jíl) paste, ice cubes from tea made of oak bark (Dubová kůra), you could use the cooled oak bark tea or the gel. The best of all is "Strachova mast" available locally in Brno in only one pharmacy, Lékárna Milosrdných bratří.
+
 I used to feel very thirsty and hungry especially during the last trimester. I remember, almost every morning at around 04:00 am, going to the kitchen to munch on some nuts, dates or sometimes I fancied eating buckwheat porridge. Later I started keeping some dry fruits and nuts by the side table close to the bed. And, I always carried water wherever I went.
 
 **Why did I move to the Czech Republic?**
@@ -51,8 +53,6 @@ Once we were back in the Czech Republic, the first thing I did was to look for a
 Doula is a professional who supports you morally during pregnancy, childbirth and postpartum. I found a wonderful birth doula, [Terezia Roubalová](https://www.duly.cz/profil/terezie-roubalova/), through facebook references from mothers in Brno. I reached out to her. She is a great person. Very knowledgeable, skilled and kind. She cared for me right away. My husband and I had a prenatal session and sessions on what to expect during childbirth and how to prepare for it. For some of the usual pregnancy related issues I was facing she recommended home remedies which were brilliant. Based on the discussions with Terezie, I created a birth plan which I eventually shared with her and the midwives before my due date. 
 
 [Ivana Bednářová](https://www.duly.cz/profil/ivana-bednarova/) was my postpartum doula and breastfeeding consultant. Before delivery, I had a breastfeeding session and information about the first 6 weeks after delivery from her. Having this information before the delivery was super useful. My wish was to exclusively breastfeed my baby from day-1.
-
- 
 
 One thing that was important for me during birth was no medical interventions unless there is an emergency.  One of my birth wishes was to delay the check-in at the hospital until it’s time and in case the delivery fast tracks, I was open to having a home birth. It is tricky to prepare for such scenarios. While we were discussing this with Terezie, she suggested having a midwife might be useful. She explained to me that a midwife can do some regular checks at home and suggest when it’s time to go to the hospital. Also they can help with checking the baby during the first 6 weeks of postpartum. I got interested. Based on her recommendation, I met two midwives. They were of course busy but we came up with a plan based on their availability. 
 
