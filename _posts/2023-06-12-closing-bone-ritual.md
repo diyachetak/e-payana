@@ -5,6 +5,8 @@ layout: post
 
 # Closing bone ritual
 
+A ritual to celebrate the power of motherhood, a way to thank women's body for bringing a life on this earth. Did you know of such a ritual or believe there is one?
+
 ![_config.yml]({{ site.baseurl }}/images/ritual.jpg)
 
 When a woman becomes pregnant her body goes through a sea change to accommodate the growing baby. Diastasis is a common condition that can occur during pregnancy and postpartum. The belly muscles are stretched and the gap between the left and right belly muscles widens. It heals on its own or through physical therapy and exercises.
