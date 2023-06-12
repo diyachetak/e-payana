@@ -3,8 +3,6 @@ title: Closing bone ritual
 layout: post
 ---
 
-# Closing bone ritual
-
 A ritual to celebrate the power of motherhood, a way to thank women's body for bringing a life on this earth. Did you know of such a ritual or believe there is one?
 
 ![_config.yml]({{ site.baseurl }}/images/ritual.jpg)
