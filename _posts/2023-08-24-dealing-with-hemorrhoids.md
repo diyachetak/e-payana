@@ -1,5 +1,5 @@
 ---
-title: Dealing with Hemorrhoids
+title: Dealing with hemorrhoids
 layout: post
 ---
 
