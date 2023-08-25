@@ -13,7 +13,7 @@ As my belly started getting heavier and heavier, it exaggerated the situation. W
 
 In this article I am sharing all that I learnt about how to treat hemorrhoids during pregnancy and post birth. Usually the problem might disappear after childbirth. But the main challenge is surviving with this problem during pregnancy and childbirth. The below pointers helped me a lot and I strongly believe it can help you too.
 
-1. **Diet**
+**Diet**
 
 Rejuvenating the gut flora is the key here. Ensure you are having enough probiotics (yogurt, kefir, kimchi etc), fiber rich food (greens, vegetables, fruits, whole grains, legumes) and lots of water.
 
@@ -23,7 +23,7 @@ For a month, I used to write down what I had for each of the meals every day. I 
 
 Flax or linseeds are that superfood and hence a special mention here. It has good fats and is fiber rich. Also, helps in passing the stools easily. In an empty stomach (before eating or drinking anything or an hour before doing yoga) eat a spoon or two linseeds.
 
-2. **Yoga**
+**Yoga**
 
 My yoga teacher recommended some asanas or practices to help with relieving hemorrhoids. I practiced them regularly during pregnancy and continued practicing them post birth as soon as I was able to do yoga. Please check with a professional before practicing any exercises.
 
@@ -47,13 +47,13 @@ This helps the blood flow in the affected area and cures the hemorrhoids by rest
 
 It was hard for me to perform this asana but I did to the extent my body allowed me. Check out how to do this online or talk to a professional for clear instructions.
 
-3. **Relax**
+**Relax**
 
 Sitting or standing for long hours will worsen the problem. It’s important to relax as much as possible.
 
 From my experience, yoga nidra and gentle walks helped me a lot. During other times, I used to walk while reading books inside the house and take a break for sitting a minute or two every 30 mins. 
 
-4. **Home remedies**
+**Home remedies**
 
 There is no quick fix. It is likely you will have hemorrhoids for the rest of your pregnancy and post birth if you leave it untreated. Thanks to my doula and midwife who shared some of the simple home remedies which can help you get some relief and manage hemorrhoids so that it doesn’t cause a problem during birth. With these home remedies the target is to,
 
