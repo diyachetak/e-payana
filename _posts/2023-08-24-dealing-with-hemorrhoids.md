@@ -5,7 +5,7 @@ layout: post
 
 Hemorrhoids are one of the most bothersome and common issues that pregnant women face. Many times women are ashamed to talk about it. Ladies, don’t suffer in silence. There are ways to get some relief and in the long run get it cured. Check it out!
 
-As you might be familiar, the cause is Increased blood flow to the pelvic area as well as pressure from the growing baby. It causes the blood veins that run through the anus to swell. Also, due to hormonal changes pregnant women face constipation which can also lead to hemorrhoids.
+As you might be familiar, the cause is increased blood flow to the pelvic area as well as pressure from the growing baby. It causes the blood veins that run through the anus to swell. Also, due to hormonal changes pregnant women face constipation which can also lead to hemorrhoids.
 
 The trouble started when I was in my fourth month of pregnancy. The first thing I did was to focus on my diet. I added more greens or fibrous food in my diet and increased intake of water. I continued my routine yoga and evening walks. It was helpful but didn’t solve the problem. 
 
