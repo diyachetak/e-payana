@@ -14,7 +14,7 @@ In our native language 'e' stands for 'this'. Hence we thought of calling our si
 
 ### What do we cover
 
-Starting with the birth story of our son, we wish to share some of the valuable inputs for a healthy natural birth, some of the nutritious vegan and vegetarian reciped for living a healthy life and our travel experiences. Hope you all enjoy reading and trying some of the recipes.
+Starting with the birth story of our son, we wish to share some of the valuable inputs for a healthy natural birth, some of the nutritious vegan and vegetarian recipes for living a healthy life and our travel experiences. Hope you all enjoy reading and trying some of the recipes.
 
 To share a little more about 'why recipes'?
 Cooking is one of my hobbies. I am a South Indian and I come from the central region of state of Karnataka. I come from a religion who prefer eating vegetarian food. We cook vegan and vegetarian cuisines at home. I am inspired by my mother-in- law who enjoys cooking. She prepares tasty and healthy food filled with lots of vegetables, nuts, coconut and spices. Her love for the family shines through the dishes she prepares. She is very creative and enthusiastic about trying new recipes. My beloved mother brings some signature dishes from the region, south of Karnataka, where she comes from. Very simple and healthy dishes. She keeps up some of the traditional dishes from her family. 
