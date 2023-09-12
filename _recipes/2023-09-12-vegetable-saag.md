@@ -4,7 +4,7 @@ layout: recipe
 ---
 
 Serves 2-4 people.
-(/)Vegan
+Vegan
 
 <span style="text-decoration:underline;">Curry Masala</span>
 
