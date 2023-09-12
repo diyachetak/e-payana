@@ -7,7 +7,7 @@ layout: recipe
 
 **Vegan**
 
-<span style="text-decoration:underline;">Curry Masala</span>
+<span style="text-decoration:underline;">Ingredients for curry masala</span>
 
 * 6-8 cashews soaked for 30 mins
 * Grated coconut (fresh or dry coconut)
@@ -18,7 +18,7 @@ layout: recipe
 * Tamarind or ½ tbsp amchur powder
 * 4-5 Curry leaves 
 
-<span style="text-decoration:underline;">Vegetables</span>
+<span style="text-decoration:underline;">Other ingredients</span>
 
 * Carrot
 * Potatoes
