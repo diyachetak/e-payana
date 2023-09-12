@@ -2,6 +2,9 @@
 title: Vegetable Saag
 layout: recipe
 ---
+Serves 2-4 people.
+(/)Vegan
+
 <span style="text-decoration:underline;">Curry Masala</span>
 
 * 6-8 cashews soaked for 30 mins
