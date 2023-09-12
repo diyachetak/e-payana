@@ -3,9 +3,8 @@ title: Vegetable Saag
 layout: recipe
 ---
 
-Serves 2-4 people
-
-Vegan
+**Serves 2-4 people**
+**Vegan**
 
 <span style="text-decoration:underline;">Curry Masala</span>
 
