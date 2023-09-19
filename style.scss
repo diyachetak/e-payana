@@ -261,8 +261,18 @@ nav {
     font-style: italic;
   }
 
+  .comments {
+    margin-top: 10px;
+  }
+
+  .read-more {
+    text-transform: uppercase;
+    font-size: 15px;
+  }
+}
+
 //
-// Adding recipes
+// .recipes
 //
 
 .recipes > .recipe {
@@ -284,8 +294,6 @@ nav {
     font-size: 22px;
     font-style: italic;
   }
-
-// ---recipes---
 	
   .comments {
     margin-top: 10px;
@@ -296,6 +304,9 @@ nav {
     font-size: 15px;
   }
 }
+
+// ---recipes---
+	
 
 .wrapper-footer {
   margin-top: 50px;
