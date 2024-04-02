@@ -107,3 +107,98 @@ Ready to serve. You can serve it as soup or eat it with rice or bread.
 * Cook for 2 more mins 
 
 Ready to serve. It tastes best with rice. Also can be served with cooked (whole) buckwheat.
+
+## Cute poke
+
+A variation of the well known poke bowl for children. Except for the rice, all ingredients are measured for the child alone. Tweak it as you need and enjoy your poke with them with any additions you would like to make for your poke. 
+
+<span style="text-decoration:underline;">Ingredients</span>
+
+
+
+* 100g Black rice
+* Handful of edamame
+* Mango
+* Avacado
+* 2-3 Okra
+* 1 tsp Vegetable oil
+* Salt to taste
+* Lemon juice to taste
+
+<span style="text-decoration:underline;">Procedure</span>
+
+
+
+* Cook black rice until soft (the grains are usually separate even if they are well done, that's a good one)
+* Cut mango into medium sized cubes
+* Cut avocado into medium sized cubes or vertically big enough for children to grab it in hand
+* Prepare okra:
+    * Take a pan, heat the oil on low medium heat. 
+    * Add okra to the pan and roast them until slightly brown
+    * Add some salt to taste and leave for a min more
+* Arrange the poke bowl for your child. 
+
+I would start with 1-2 tbsp rice, 5-6 cubes of mango, 2-3 pieces of avocado, a few edamame and keep okra on the top or stick it in a corner. Sprinkle a little salt and lemon juice. Ensure all the items are clearly visible for them and don’t clutter with more quantity. Feel free to tweak the ingredients with your child’s favorite fruits and veggies. 
+
+**Note**: It’s not necessary you have all the ingredients. Starting with just rice is good. My son enjoys just eating black rice or brown rice. That’s how we started and added his favorite fruits and veggies together into a poke.
+
+
+## Peas Pilao
+
+<span style="text-decoration:underline;">Ingredients</span>
+
+
+
+* 1 cup rice
+* 2 cups of water
+* 1 tsp Kasuri methi (dry or fresh fenugreek leaves)
+* 1 tsp ghee/1 tsp Vegetable oil
+* 2-3 tbsp peas (fresh or frozen, washed)
+* Salt to taste
+
+<span style="text-decoration:underline;">Procedure</span>
+
+
+
+* Take ghee/oil in pan
+* Add cumin and wait until they splutter
+* Add peas, stir for a min
+* Add kasuri methi and give it a quick stir
+* Add salt to taste
+* Add rice and water
+* Stir well and cook until soft
+
+Ready to serve. You can serve it with white yogurt. 
+
+
+## Viet Miso Soup
+
+I learned it from a Vietnamese friend of mine. Thanks to her, my son loves it and enjoys saying the ingredients by name.
+
+<span style="text-decoration:underline;">Ingredients</span>
+
+
+
+* ~750 ml water
+* 2-3 medium sized mushrooms (shitake or regular white or brown ones)
+* 100g (firm) tofu
+* 1 tbsp miso (of your choice)
+* A handful of dried seaweed (wakame)
+* (optional) Salt to taste
+
+<span style="text-decoration:underline;">Procedure</span>
+
+
+
+* Add the water to a vessel and keep it a medium heat
+* Slice mushroom (medium thickness) and add them to the water, give it a stir so that mushroom spread well and continue cooking
+* Dice tofu into medium sized cubes and add them to the water, continue cooking
+* Add seaweed when the water is hot
+* _(You can add a little more water if you want to dilute it)_
+* Continue cooking for few more mins until mushrooms are done well
+* Turn the stove off and let the soup cool down a bit
+* To the warm soup add miso (this is to retain the goodness of miso) and mix well
+
+Ready to serve. If you have leftover soup, you can warm it up a bit before eating.
+
+(I will keep adding more recipes as and when I have time to add few more or something new.. come back and check here!)
