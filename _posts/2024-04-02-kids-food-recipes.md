@@ -201,4 +201,83 @@ I learned it from a Vietnamese friend of mine. Thanks to her, my son loves it an
 
 Ready to serve. If you have leftover soup, you can warm it up a bit before eating.
 
+## Corn Chat
+
+<span style="text-decoration:underline;">Ingredients</span>
+
+
+
+* 100g sweet corn (ready to eat)
+* 20g tofu (cut into small pieces)
+* 2 medium sized mushrooms(chopped into small bites)
+* ½ tsp butter
+* Salt and pepper to taste
+* _Optionally finely chopped fresh tomatoes and herbs (coriander or parsley) can be used for garnishing_
+
+<span style="text-decoration:underline;">Procedure</span>
+
+
+
+* Take a pan 
+* On medium heat add butter, wait for it to melt
+* Add mushroom and roast until well done
+* Add tofu and toss them to give a good mix
+* Add sweet corn
+* Add salt and pepper 
+* Mix the ingredients well and cook for a minute or two
+* Turn the stove off 
+* _(optional) Garnish with fresh tomatoes and herbs._
+
+Ready to serve. It's a whole meal in itself, don't you think?
+
+
+## Gobi Methi Malai
+
+A recent hit from my kitchen. My family and friends gave a big thumbs up. I tried it at a community event for a gathering of 15+ people. It turned out to be a favorite among all.
+
+<span style="text-decoration:underline;">Ingredients</span>
+
+
+
+* 10-12 medium sized florets of cauli flower
+* 50g tofu (or paneer) medium sized dices
+* 20g of frozen peas
+* 100ml Sour cream (12-15% fat)
+* Spice mix - ½ tsp cumin powder, 1 tsp coriander powder, (optional) ½ tsp sweet chilly powder
+* 1 tbsp vegetable oil (olive oil)
+* ½ tsp cumin
+* ½ tbsp Kasuri methi (dried fenugreek leaves)
+* Salt to taste
+* _Optionally other vegetables like potato, tomato, mushrooms, onions can be added (chopped into slightly big pieces)_
+
+<span style="text-decoration:underline;">Procedure</span>
+
+
+
+* Prepare cauli flower: *_Wash the cauliflower well and cook them in a steamer for 3-5 mins. **You can prepare and add other vegetables._
+* Take a deep bottom pan (or iron pot)
+* Add oil on medium heat and wait until its warm
+* Add cumin seeds and wait for them to splutter
+* Add spice mix and give a quick stir
+* Add peas and pinch of salt. Mix well and cook for a minute or two
+* Add cauli flower, tofu and salt as you need
+* Mix well and cook for 2 minutes
+* Crush the methi on your palm and spread it evenly on the dish
+* Add the sour cream and give it a gentle but good mix.
+* Turn the stove off and cover with a lid
+
+Ready to serve in a minute or two. You can enjoy it with rice, tortilla, chapathi or bread. Especially for adults, you may want to try an idea that came up during the community event that I mentioned earlier. You can prepare a burrito with some rice, gobi methi malai and/or any sauces or herbs of your choice, all wrapped in a tortilla. Thanks to the lovely community of people who were happy to try my dish and their creativity.
+
+*_Depending on the size of the cauli flower florets the time it takes for cooking might vary. Check regularly to make sure they are crunchy. Cooking slightly over or under, both aren’t good. It might take some trials._
+
+_**Optional items can be added in the mentioned order_
+
+
+
+* _You might want to double the spice mix, add more tofu (or paneer), peas and sour cream if you are adding more veggies and according to your taste_
+* _Onions go right after the cumin seeds and are roasted until they turn slightly golden. A pinch of salt at this time will help the onion cook well._
+* _Tomatoes will go right after the spices are added and cook for 2 mins. _
+* _Potatoes can be precooked separated in water to well done crunchy bites and added along with cauli flower_
+* _Capsicum and/or mushrooms can go with peas. _
+
 (I will keep adding more recipes as and when I have time to add few more or something new.. come back and check here!)
