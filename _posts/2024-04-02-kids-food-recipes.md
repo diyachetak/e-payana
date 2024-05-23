@@ -35,6 +35,7 @@ Below portions are roughly for 2-3 people(a small family). Tweak the quantity as
 
 I majorly use organic quality products. Usually I prepare basmati or jasmine rice to go with some of the recipes noted here. If it's a different type of rice, I have called that out in the recipe. Attention though, see what kind of rice your child enjoys!
 
+![_config.yml]({{ site.baseurl }}/images/kid-food.jpg)
 
 ## Kokos lentil soup 
 
