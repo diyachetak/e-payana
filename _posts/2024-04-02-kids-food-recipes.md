@@ -35,7 +35,7 @@ Below portions are roughly for 2-3 people(a small family). Tweak the quantity as
 
 I majorly use organic quality products. Usually I prepare basmati or jasmine rice to go with some of the recipes noted here. If it's a different type of rice, I have called that out in the recipe. Attention though, see what kind of rice your child enjoys!
 
-![_config.yml]({{ site.baseurl }}/images/kid-food.jpg)
+
 
 ## Kokos lentil soup 
 
@@ -110,6 +110,8 @@ Ready to serve. You can serve it as soup or eat it with rice or bread.
 Ready to serve. It tastes best with rice. Also can be served with cooked (whole) buckwheat.
 
 ## Cute poke
+
+![_config.yml]({{ site.baseurl }}/images/kid-food.jpg)
 
 A variation of the well known poke bowl for children. Except for the rice, all ingredients are measured for the child alone. Tweak it as you need and enjoy your poke with them with any additions you would like to make for your poke. 
 
