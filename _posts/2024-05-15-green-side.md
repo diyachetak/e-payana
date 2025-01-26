@@ -11,8 +11,8 @@ Summer holidays that I spent at my aunt’s makes another glorious memory. I use
 
 I have shared my experience visiting some of the farms in India in the below link. I look forward to learning more about farming.
 
-School of natural farming, Tumkur
+[School of natural farming](https://www.e-payana.com/school-of-natural-farming-tumkur/), Tumkur
 
-The Green Path, Bangalore (organic restaurant)
+[The Green Path](https://www.e-payana.com/the-green-path/), Bangalore (organic restaurant)
 
-Mohraan Farms, Shahapur - Maharashtra
+[Mohraan Farms](https://www.e-payana.com/mohraan-farms/), Shahapur - Maharashtra
