@@ -237,8 +237,6 @@ A recent hit from my kitchen. My family and friends gave a big thumbs up. I trie
 
 <span style="text-decoration:underline;">Ingredients</span>
 
-
-
 * 10-12 medium sized florets of cauli flower
 * 50g tofu (or paneer) medium sized dices
 * 20g of frozen peas
@@ -251,8 +249,6 @@ A recent hit from my kitchen. My family and friends gave a big thumbs up. I trie
 * _Optionally other vegetables like potato, tomato, mushrooms, onions can be added (chopped into slightly big pieces)_
 
 <span style="text-decoration:underline;">Procedure</span>
-
-
 
 * Prepare cauli flower: *_Wash the cauliflower well and cook them in a steamer for 3-5 mins. **You can prepare and add other vegetables._
 * Take a deep bottom pan (or iron pot)
@@ -272,12 +268,64 @@ Ready to serve in a minute or two. You can enjoy it with rice, tortilla, chapath
 
 _**Optional items can be added in the mentioned order_
 
-
-
 * _You might want to double the spice mix, add more tofu (or paneer), peas and sour cream if you are adding more veggies and according to your taste_
 * _Onions go right after the cumin seeds and are roasted until they turn slightly golden. A pinch of salt at this time will help the onion cook well._
 * _Tomatoes will go right after the spices are added and cook for 2 mins. _
 * _Potatoes can be precooked separated in water to well done crunchy bites and added along with cauli flower_
 * _Capsicum and/or mushrooms can go with peas. _
+
+## Little Pongal
+
+<span style="text-decoration:underline;">Ingredients</span>
+
+* 1 cup (or 100g) rice
+* 1 cup (or 100g) split mung
+* Water - 4 cups for cooking rice+lentil, ¾ cup for adding with the seasoning 
+* ½ tbsp ghee or vegetable oil
+* ½ tsp cumin
+* 20g frozen green peas
+* ¼ tsp turmeric powder
+* Salt to taste
+
+<span style="text-decoration:underline;">Procedure</span>
+
+* Cook rice and lentil until soft
+* Take a cooking vessel / deep bottom pan
+* Add ghee on medium heat and wait until it is warm
+* Add cumin and wait for them to splutter
+* Add peas and cook for a minute
+* Add salt, turmeric and cook for 2 minutes
+* Add ¾ cup water and let it boil
+* Add cooked rice and lentil mix and give it a stir
+* Cook for another minute
+
+Ready to serve. It’s a simple and healthy dish of all times. Especially when you aren’t feeling well, this dish is your friend.
+
+### Multigrain Chilla
+
+<span style="text-decoration:underline;">Ingredients</span>
+
+* ¼ cup chickpea flour (gram flour)
+* ½ cup  buckwheat flour
+* ½ cup corn flour
+* ¼ rice flour
+* 1 small onion finely chopped
+* 1 tsp whole (římský) cumin
+* 2 tbsp sweet corn, 1 tsp dried fenugreek leaves
+* ½ tsp salt
+* Pinch of baking soda
+* 1 tsp olive oil
+* Pinch of turmeric
+* Water
+
+<span style="text-decoration:underline;">Procedure</span>
+
+* Mix all the ingredients dry and add water slowly to get a thick fluid consistency
+* Take a pan and apply a little bit of olive oil
+* Pour part of the mix and spread it like a pancake but slightly thick
+* Cook well on both sides. You can spray a bit of oil on either side while cooking
+* Remove from the pan
+
+Ready to serve. You can enjoy it as pancakes or with some yogurt dip.
 
 (I will keep adding more recipes as and when I have time to add few more or something new.. come back and check here!)
