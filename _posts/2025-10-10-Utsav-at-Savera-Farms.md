@@ -11,7 +11,9 @@ Given that our usual diet already incorporates a wealth of fresh fruits and vege
 
 The Utsav event itself was a resounding success. We were fortunate to meet a wonderful couple, our neighbors for the duration, who had visited Savera a couple of times previously. They generously shared their experiences and offered valuable tips, which helped us settle in immediately.  It was truly enlightening to connect with so many like-minded individuals, learning from their experiences and sharing our own.
 
-The spirit of volunteering at Savera was truly heartwarming. The volunteers, who affectionately addressed me as "akka" (sister), made us feel completely at home and ensured we made the most of our stay, guiding us day in and day out.
+The spirit of volunteering at Savera was truly heartwarming. The volunteers made us feel completely at home and ensured we made the most of our stay, guiding us day in and day out.
+
+Learning about individuals' healing journeys and positive feedback from connecting with and following nature's cure at Savera Farm was truly inspiring. They shared how they overcame health challenges and restored their well-being.
 
 **Morning Bliss**
 
