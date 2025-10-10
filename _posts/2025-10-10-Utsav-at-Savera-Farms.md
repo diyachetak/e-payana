@@ -3,7 +3,7 @@ title: Utsav (festival) at Savera Farm
 layout: post
 ---
 
-Our recent Dussehra celebration unfolded into a week-long immersion in nature, a beautiful dream spent at [Savera Farm](https://www.saveranaturals.in/), an organic farm stay near Sakleshpur. The highlight of this rejuvenating experience was undoubtedly the diet, crafted primarily from fresh, raw produce cultivated right on the farm. It was a delightful culinary journey that kept me energetic and revitalized throughout the stay.
+Our recent Dussehra celebration unfolded into a 4 day long immersion in nature, a beautiful dream spent at [Savera Farm](https://www.saveranaturals.in/), an organic farm stay near Sakleshpur. The highlight of this rejuvenating experience was undoubtedly the diet, crafted primarily from fresh, raw produce cultivated right on the farm. It was a delightful culinary journey that kept me energetic and revitalized throughout the stay.
 
 Given that our usual diet already incorporates a wealth of fresh fruits and vegetables, embracing this new raw food regimen was an effortless transition. I welcomed it with an open mind, anticipating a truly special experience.
 
