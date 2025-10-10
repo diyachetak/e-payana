@@ -17,7 +17,7 @@ Learning about individuals' healing journeys and positive feedback from connecti
 
 **Morning Bliss**
 
-Mornings at Savera were filled with refreshing activities like yoga and semantics. My husband and I took turns attending these, while also caring for our little one. What was truly admirable was our son's enthusiasm; upon hearing our plans the night before, he magically woke up early, eager to participate. These sessions were often followed by engaging lectures or activities, which we found incredibly enriching and connecting.
+Mornings at Savera were filled with refreshing activities like yoga and somatics. My husband and I took turns attending these, while also caring for our little one. What was truly admirable was our son's enthusiasm; upon hearing our plans the night before, he magically woke up early, eager to participate. These sessions were often followed by engaging lectures or activities, which we found incredibly enriching and connecting.
 
 **"Let Food Be Thy Medicine": Savera's Culinary Philosophy**
 
